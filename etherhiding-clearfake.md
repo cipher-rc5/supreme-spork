@@ -1,0 +1,70 @@
+# ClearFake - EtherHiding
+
+## malicious control servers extracted from blockchain data
+
+```
+- https://1a-a1.pages.dev/
+- https://b1-c1-k8.pages.dev/
+- https://bbb1-9we.pages.dev/mountain
+- https://bsdw.pages.dev/blink
+- https://cleaning-devices-k.pages.dev/
+- https://dfhusj.pages.dev/train
+- https://disable-data-collect-ai.pages.dev/
+- https://dns-resolver-es8.pages.dev/
+- https://dsk1a.pages.dev/onside
+- https://ert67-o9.pages.dev/data
+- https://f003.backblazeb2.com/file/skippp/index.html
+- https://f003.backblazeb2.com/file/skippp/uu.html
+- https://f23-11r.pages.dev/verse
+- https://fg-gb6.pages.dev/chrome
+- https://fhjwekn.pages.dev/ibn
+- https://fmoz.pages.dev/
+- https://fresh-orange-juice.pages.dev/
+- https://fwfa.pages.dev/kioto
+- https://gdfg-23rwe.pages.dev/index.html
+- https://ghost-name.pages.dev/website
+- https://hostme.pages.dev/host
+- https://human-verify-7u.pages.dev/
+- https://hypo-dance.pages.dev/damn
+- https://ip-provider.pages.dev/
+- https://jsfiles-bqq.pages.dev/1
+- https://jsfiles-bqq.pages.dev/2
+- https://kolobsgw.pages.dev/
+- https://macos-browser-update-5i.pages.dev/
+- https://mixg-u.pages.dev/page_d
+- https://mixg-u.pages.dev/page_s
+- https://new-school-day-1.pages.dev/
+- https://niopg.pages.dev/
+- https://nn11.pages.dev/
+- https://nnoq.pages.dev/
+- https://recaptcha-0d-verify.pages.dev/
+- https://recaptcha-dns-d9.pages.dev/
+- https://recaptcha-dns-o5.pages.dev/
+- https://recaptcha-verify-1r.pages.dev/
+- https://recaptcha-verify-1t.pages.dev/
+- https://recaptcha-verify-2e.pages.dev/
+- https://recaptcha-verify-7z.pages.dev/
+- https://recaptcha-verify-9m.pages.dev/
+- https://recaptcha-verify-9n.pages.dev/
+- https://recaptcha-verify-me-1c.pages.dev/
+- https://recaptha-verify-1n.pages.dev/
+- https://recaptha-verify-2w.pages.dev/
+- https://recaptha-verify-3m.pages.dev/
+- https://recaptha-verify-4z.pages.dev/
+- https://recaptha-verify-5q.pages.dev/
+- https://recaptha-verify-6l.pages.dev/
+- https://recaptha-verify-7u.pages.dev/
+- https://recaptha-verify-7y.pages.dev/
+- https://recaptha-verify-9o.pages.dev/
+- https://recaptha-verify-c1.pages.dev/
+- https://recaptha-verify-q3.pages.dev/
+- https://s0s2.pages.dev/
+- https://sdfwefwg.pages.dev/
+- https://sha-11x.pages.dev/
+- https://social-brain-page.pages.dev/
+- https://tour-agency-media.pages.dev/
+- https://x1x1.pages.dev/native1E
+- https://xxx-cf.pages.dev/fix1
+- https://xxx.retweet.shop/ibn.html
+- https://you-insk-bad.pages.dev/
+```
